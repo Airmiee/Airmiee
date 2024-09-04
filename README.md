@@ -10,8 +10,8 @@ I love solving complex problems, optimizing processes, and driving data-driven d
 
 +🚀 You can connect with me on:
 
-  *  LinkedIn: [title](linkedin.com/in/emediong-inyang-\)
-  *  X: [title](https://x.com/air_mieee)
+  *  [LinkedIn](https://www.linkedin.com/in/emediong-inyang-)
+  *  [X](https://x.com/air_mieee)
 
 Looking forward to connecting and collaborating!
 
